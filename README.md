@@ -1,1 +1,1 @@
-# Portfolio
+My name is Joshua Grey.  My main strength is programming, and I am committed to having strong time management and strong verbal and written communication skills.  I value protecting people and adhering to laws.  The thing that makes me interested in cybersecurity is that in today's world everything is going digital, which leads to there being a greater risk of your personal information getting leaked.
